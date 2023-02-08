@@ -1,1 +1,0 @@
-# hemandpaul5.github.io
